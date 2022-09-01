@@ -1,1 +1,1 @@
-God is Love
+Indeed God is Love
